@@ -1,1 +1,1 @@
-# web3 nft profiles
+# web3 nft profile.
